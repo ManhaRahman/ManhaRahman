@@ -2,7 +2,7 @@
 - 🎊 I’m interested in studying, reading and drawing.
 - 🎨 I’m currently learning HTML.
 - 👑 I’m looking to collaborate on ...
-- ☎ How to reach me No.: 01775772898.
+- ☎ How to reach me Secret🤪.
 - 🖼 Pronouns: she.
 - 🎇 Fun fact: I am the smallest in my class.
 
